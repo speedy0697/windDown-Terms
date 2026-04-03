@@ -1,4 +1,4 @@
-# Terms of Service for Wind Down
+# Wind Down: Sleep Ritual — Terms of Service
 
 Effective date: April 2, 2026
 
